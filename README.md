@@ -10,3 +10,5 @@ I want to clarify first of all that this publication is educational. I do not en
 
 Educational Purpose Only !
 Contacte me : https://t.me/ZipetteTech
+
+Bonus: Many sites if you haven't noticed have just appeared under the domain name craxsrat as well as telegram channels do not buy anything the source code of the latest version has just been leaked I am publishing it on github I just hope that github will not delete the repository on this peace be upon you
